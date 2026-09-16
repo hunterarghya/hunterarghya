@@ -4,7 +4,7 @@
 
 ### **Hey, it's Arghya.**
 
-I builds things to make life easy and fun!!!
+I build things to make life easy and fun!!!
 
 Friends call me O.G. Bana calls me Ari... <br>
 But if you have to call me something, please drop a mail <a href="mailto:arghyaapply2016@gmail.com" target="_blank">here</a> to say hello :)
